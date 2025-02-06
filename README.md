@@ -1,2 +1,7 @@
 # personal-website
-SandraChepkemboiKosgei.github.io
+### Education
+### Work Experience
+
+###Projects
+
+### Extra learning
